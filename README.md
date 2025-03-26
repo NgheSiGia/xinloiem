@@ -1,1 +1,1 @@
-link chạy :https://nghesigia.github.io/xinloiem2/
+link chạy :https://nghesigia.github.io/xinloiem/
